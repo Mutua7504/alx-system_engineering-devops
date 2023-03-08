@@ -1,1 +1,1 @@
-echo "sniper is a crazy motherfucker"
+this mother funcker is a damn genuu
